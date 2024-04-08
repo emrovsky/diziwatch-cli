@@ -1,1 +1,0 @@
-[![nasıl kullanılır]([https://youtu.be/vt5fpE0bzSY](https://cdn.discordapp.com/attachments/1173756336685715596/1226618795788079244/2024-04-07_22-08-31.mp4?ex=66256cc6&is=6612f7c6&hm=41dee3aa182dd490d3b0af816774c587c3bb4b41b2be862c509fbcf06088ed7c&))
